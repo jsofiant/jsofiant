@@ -1,5 +1,5 @@
 # 💫 About Me:
-❤️ hi, I’m @jsofiant, aka jackie!<br>❤️ computer science major interested in software engineering :)<br>❤️ pronouns: she/her<br>
+❤️ hi, I’m @jsofiant, aka jackie!<br>❤️ computer science major interested in software engineering :)<br>❤️ learning by building, breaking, and fixing things<br>
 
 
 ## 🌐 Socials:
